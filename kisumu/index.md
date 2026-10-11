@@ -1,9 +1,9 @@
 # Wikimania 2025
 
-Please click on of the following links to get to the YouTube stream of the live interpretation.
+Please click one of the following links to get to the YouTube stream of the live interpretation.
 
 
-## Room Kisumu
+## Room Kisumuu
 
 
 [العربية](https://www.youtube.com/watch?v=-Sc1mNapBRQ)
